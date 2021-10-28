@@ -1,8 +1,8 @@
 ### Hi there 👋
 
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning basic subject
 
-- 🤔 I’m looking for help with ...
+
 - 💬 Ask me about ...
 - 📫 How to reach me: aaabyantara21@gmail.com | arya.abyantara11@ui.ac.id
 
