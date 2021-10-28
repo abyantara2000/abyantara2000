@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+- ⚙️ I'm an Engineering Student
+- 🔥 Metals and Materials ⛏️
 - 🌱 I’m currently learning basic subject
 
 
